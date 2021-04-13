@@ -1,4 +1,4 @@
-- 👋 Hi, I’m John Joseph Veloria  
+- 👋 Hi, I’m John Joseph Veloria a Professional Rock Climber.
 - 👀 I’m interested in outdoor/ Nature I'm doing rock climbing, mountain climbing, surfing, ultimate friesbe and slack lining.
 - 🌱 I’m currently learning about programming.
 - 💞️ I’m looking to collaborate on ...
